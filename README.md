@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there 👋 Lol!! I'm working my way through this maze of my ignorance but, I've got my finger on the keyboard and stroking along! ;)
 
 <!--
 **BIGC1972/BIGC1972** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
